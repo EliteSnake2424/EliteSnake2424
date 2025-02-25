@@ -1,1 +1,1 @@
-well this is here, im a titanfall 2 modder (not hacks, just skin modifer and vpk editor which doesn't harm the game at all.)
+My main account is snake2424, for some reason the commits are read as being from this account dont know its funky these are the same person with the same account, have a nice day!
